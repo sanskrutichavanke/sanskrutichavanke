@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on projects that transform ideas into impactful solutions!
 - 📫 How to reach me www.linkedin.com/in/chavankesanskruti
 
-- ✨ Fun Fact: When I'm not decoding data, you can find me chasing sunsets or daydreaming about a world powered by sustainable energy. ☀️🌲
+✨ Fun Fact: When I'm not decoding data, you can find me chasing sunsets or daydreaming about a world powered by sustainable energy. ☀️🌲
 
 Let’s connect and create something amazing! 🚀
 <!---
